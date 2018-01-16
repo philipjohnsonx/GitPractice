@@ -23,6 +23,8 @@ History of Central America
 **Week 8**
 
 **Week 9**
+Coup in Honduras 2009
+Unrest in Honduras 2017
 
 **Week 10**
 
@@ -37,5 +39,7 @@ Guatemala, Salvador, Hondura
 Exception: Nicaragua
 
 **Week 13**
+Central American migrants in Mexico
+Central American migrants in the US
 
 **Week 14**
