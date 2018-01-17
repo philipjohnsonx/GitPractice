@@ -5,7 +5,7 @@
 ## Readings
 
 **Week 1**
-History of Central America
+*History of Central America*
 
 **Week 2**
 
@@ -27,15 +27,18 @@ History of Central America
 **Week 10**
 
 **Week 11**
-Resources
+*Resources*
 Land in Honduras
 Minerals in Salvador
 
 **Week 12**
-Organized Crime
-Guatemala, Salvador, Hondura
+*Organized Crime*
+Issues: Guatemala, Salvador, Hondura
 Exception: Nicaragua
 
 **Week 13**
+*Northbound migration*
+Central Americans in Mexico (Martínez reading)
+Central Americans in the US
 
 **Week 14**
